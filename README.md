@@ -1,2 +1,2 @@
-# Videodarslik.uz
+# Darslik.uz
 Assalomu Aleykum
